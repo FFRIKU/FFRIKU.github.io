@@ -1,0 +1,1 @@
+# FFRIKU.github.io
